@@ -1,5 +1,7 @@
 _Hi it is I **FRANCIS** A.K.A Osimef_ 🙂 🤞
 
+![me](https://github.com/HackYourFutureBelgium/class-15/blob/master/admin/avatars/students/Osimef849.jpeg)
+
 ## Setting the records straight
 
 **I am from the west coast of Africa** 🌍
